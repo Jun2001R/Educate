@@ -1,1 +1,1 @@
-# Educate
+# Educated
